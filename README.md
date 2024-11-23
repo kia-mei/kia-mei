@@ -4,7 +4,8 @@
 
   lesbian ⠀. .⠀⠀**ta**ken ♪
 
-bul  +  eng⠀ ⠀⠀⠀ ⠀‧       ⠀read **carrd** for more info  ⠀ ^_^       ⠀[![HitCount](https://hits.dwyl.com/ELATlON/ELATlON.svg?style=flat-square)](http://hits.dwyl.com/ELATlON/ELATlON)
+bul  +  eng⠀ ⠀⠀⠀ ⠀‧       ⠀read **carrd** for more info  ⠀ ^_^       ⠀
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hyroggk8b9ttzxus2yv84u5kq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![1](https://64.media.tumblr.com/500ee4e0f893e6ba44adfeed982d9aad/7fa768b238afea29-a7/s2048x3072/cd2e3239f9d81b5c3facd4a1a9c1059b5fbe8ce7.pnj)
   ⠀ ⠀ ⠀ ⠀  ⠀ **[CARRD](https://9madoka.carrd.co/)** 　𓂃　**[GUESTBOOK](http://9madoka.123guestbook.com/)**
 
