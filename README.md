@@ -5,8 +5,7 @@
   lesbian ⠀. .⠀⠀**ta**ken ♪
 
 bul  +  eng⠀ ⠀⠀⠀ ⠀‧       ⠀read **carrd** for more info  ⠀ ^_^       ⠀
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hyroggk8b9ttzxus2yv84u5kq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-![1](https://64.media.tumblr.com/500ee4e0f893e6ba44adfeed982d9aad/7fa768b238afea29-a7/s2048x3072/cd2e3239f9d81b5c3facd4a1a9c1059b5fbe8ce7.pnj)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hyroggk8b9ttzxus2yv84u5kq&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=true&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
   ⠀ ⠀ ⠀ ⠀  ⠀ **[CARRD](https://9madoka.carrd.co/)** 　𓂃　**[GUESTBOOK](http://9madoka.123guestbook.com/)**
 
 ![1](https://64.media.tumblr.com/efc290f705380ec6e69ab051afdb1594/7fa768b238afea29-df/s2048x3072/ae4583ac324caf1413c570d08785432e0578fb6f.pnj)
