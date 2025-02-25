@@ -4,7 +4,7 @@
 
   lesbian ⠀. .⠀⠀**ta**ken ♪
 
-bul  +  eng⠀ ⠀⠀⠀ ⠀‧       ⠀read **carrd** for more info  ⠀ ^_^       ⠀
+bul  +  eng
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hyroggk8b9ttzxus2yv84u5kq&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=true&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
   ⠀ ⠀ ⠀ ⠀  ⠀ **[CARRD](https://9madoka.carrd.co/)** 　𓂃　**[GUESTBOOK](http://9madoka.123guestbook.com/)**
 
