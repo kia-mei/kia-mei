@@ -1,4 +1,6 @@
-https://rentry.co/noizaoba
+[rentry](https://rentry.co/noizaoba)
+
+![](https://komarev.com/ghpvc/?username=kia-mei&color=d0b2db&style=plastic&label=⠀⠀⠀☆⠀⠀⠀)
 
 ![Image](https://github.com/user-attachments/assets/f23d4212-6824-4c0b-b348-1a15da5fd91d)
 
