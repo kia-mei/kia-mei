@@ -1,6 +1,6 @@
 [rentry](https://rentry.co/noizaoba)
 
-** SIGN MY ATA**
+**SIGN MY ATA**
 
 ![](https://komarev.com/ghpvc/?username=kia-mei&color=d0b2db&style=plastic&label=⠀⠀⠀☆⠀⠀⠀)
 
